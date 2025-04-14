@@ -23,4 +23,5 @@ March 2025 (5)
 
 April 2025
 - Not "A Nation of Immigrants" by Roxanne Dunbar-Ortiz (50% / not done)
-- Palaces for the People by Eric Klinenberg (in progress)
+- Palaces for the People by Eric Klinenberg - 2025-04-06
+- Being Jazz by Jazz Jennings - 2025-04-13
