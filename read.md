@@ -32,3 +32,7 @@ May 2025
 - Heartbreak is the National Anthem by Rob Sheffield
 - Lion Women of Tehran
 - Careless People
+
+June 2025
+- When We Flew Away by Alice Hoffman
+- Life on Svalbard by Cecilia Blomdahl
