@@ -12,7 +12,7 @@ January 2025 (7)
 February 2025 (3)
 - Coming Home by Brittney Griner - 2025-02-05
 - Station Eleven by Emily St. John Mandel - 2025-02-07
-- Always Remember Your Name by Andra Bucci and Tatiana Bucci
+- Always Remember Your Name by Andra Bucci and Tatiana Bucci - 2025-02-19
 
 March 2025 (5)
 - James by Percival Everett - 2025-03-02
@@ -22,17 +22,17 @@ March 2025 (5)
 - Autocracy, Inc by Anne Applebaum - 2025-03-21
 
 April 2025 (4)
-- Not "A Nation of Immigrants" by Roxanne Dunbar-Ortiz (50% / not done)
+- Not "A Nation of Immigrants" by Roxanne Dunbar-Ortiz - 2025-04-02
 - Palaces for the People by Eric Klinenberg - 2025-04-06
 - Being Jazz by Jazz Jennings - 2025-04-13
 - Everyone who is gone is here by Jonathan Blitzer - 2025-04-30
 
 May 2025 (4)
-- Stag Dance by Torrey Peters 2025-05-07
-- Heartbreak is the National Anthem by Rob Sheffield 2025-05-20
-- Lion Women of Tehran 2025-05-23
-- Careless People 2025-05-30
+- Stag Dance by Torrey Peters - 2025-05-07
+- Heartbreak is the National Anthem by Rob Sheffield - 2025-05-20
+- Lion Women of Tehran - 2025-05-23
+- Careless People - 2025-05-30
 
 June 2025
-- When We Flew Away by Alice Hoffman 2025-06-11
-- Life on Svalbard by Cecilia Blomdahl 2025-06-20
+- When We Flew Away by Alice Hoffman - 2025-06-11
+- Life on Svalbard by Cecilia Blomdahl - 2025-06-20
