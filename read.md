@@ -25,7 +25,7 @@ April 2025 (4)
 - Not "A Nation of Immigrants" by Roxanne Dunbar-Ortiz (50% / not done)
 - Palaces for the People by Eric Klinenberg - 2025-04-06
 - Being Jazz by Jazz Jennings - 2025-04-13
-- Everyone who is gone is here by Jonathan Blitzer
+- Everyone who is gone is here by Jonathan Blitzer - 2025-04-30
 
 May 2025 (4)
 - Stag Dance by Torrey Peters
