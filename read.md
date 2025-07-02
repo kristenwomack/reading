@@ -28,11 +28,11 @@ April 2025 (4)
 - Everyone who is gone is here by Jonathan Blitzer - 2025-04-30
 
 May 2025 (4)
-- Stag Dance by Torrey Peters
-- Heartbreak is the National Anthem by Rob Sheffield
-- Lion Women of Tehran
-- Careless People
+- Stag Dance by Torrey Peters 2025-05-07
+- Heartbreak is the National Anthem by Rob Sheffield 2025-05-20
+- Lion Women of Tehran 2025-05-23
+- Careless People 2025-05-30
 
 June 2025
-- When We Flew Away by Alice Hoffman
-- Life on Svalbard by Cecilia Blomdahl
+- When We Flew Away by Alice Hoffman 2025-06-11
+- Life on Svalbard by Cecilia Blomdahl 2025-06-20
